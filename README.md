@@ -21,8 +21,7 @@ Here's what Logger.py does:
 
 
 
-
-With the release:
+Also Join my discord: **https://discord.gg/zsGTqgnsmK**
 
 # IMPORTANT NOTICE 
 
